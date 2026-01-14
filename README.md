@@ -1,0 +1,1 @@
+# Kisisel-Alan-Erisiminin-Psikolojiye-Etkisi
